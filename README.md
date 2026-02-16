@@ -1,5 +1,4 @@
-# Dynamic-Action-Reaction-Model
-Sanjay Soni's Revised Model: Continuous Emergence and Non-Cyclic Universe
+
 Sanjay Soni – Dynamic Action-Reaction Model (Revised)
 1. Objective
 To provide a scientifically and philosophically grounded model that explains continuous emergence of new forms and processes in the universe, emphasizing that the universe is not cyclic and that each interaction generates new outcomes.
